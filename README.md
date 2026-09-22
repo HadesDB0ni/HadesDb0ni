@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Eu Gosto Do Markus<br>👯 IEu Gosto Do Sales<br>🤝 Eu Amo o Gabriel<br>🌱 Eu não gosto de alface<br>💬 Cadê a vó do luiz?<br>⚡Você já sentiu o sétimo sentido?<br> Eu Amo o Lol
+🔭 Eu Gosto Do Markus<br>👯 IEu Gosto Do Sales<br>🤝 Eu Amo o Gabriel<br>🌱 Eu não gosto de alface<br>💬 Cadê a vó do luiz?<br>⚡Você já sentiu o sétimo sentido?<br>🥵Eu Amo o Lol
 
 
 ## 🌐 Socials:
