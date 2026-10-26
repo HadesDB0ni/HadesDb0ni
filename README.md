@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Eu Gosto Do Markus<br>👯 IEu Gosto Do Sales<br>🤝 Eu Amo o Gabriel<br>🌱 Eu não gosto de alface<br>💬 Cadê a vó do luiz?<br>⚡Você já sentiu o sétimo sentido?<br>🥵Eu Amo o Lol
+🎮 Presidente dos Fullstack's<br> 🏴‍☠️ Piratas são os verdadeiros Heróis<br>👯 Odeio a rockstar<br>🤝 Eu amo o cyberleek<br>🌱 Eu não gosto de alface<br>💬 Cadê a Empress?<br>⚡Você já sentiu o sétimo sentido?<br>🪦Eu Amo Dark Souls
 
 
 ## 🌐 Socials:
